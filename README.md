@@ -1,0 +1,1 @@
+# stat410-homework-6-solved
